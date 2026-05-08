@@ -1,0 +1,1 @@
+Humanoid [[Beasts]], much more intelligent than animals, and even to the point of being mentally equal to [[Humans]], but hindered by tendencies for natural desire, contests of strength, and the whims of a race unwanting of civilisation, and wanting of the simple crevices of life.
