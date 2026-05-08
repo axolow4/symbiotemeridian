@@ -1,0 +1,15 @@
+- Opening Image
+- Theme Stated
+- Set-up / Status Quo
+- Catalyst / Inciting Incident
+- Debate / Hesitation
+- Break into Act 2 Doorway of No Return
+- B Story introduction 
+- Fun & Games / Promise of the Premise
+- Midpoint (big reversal / false victory or false defeat)
+- Bad Guys Close In
+- Dark Night of the Soul
+- Break into Act 3
+- Finale
+- Final Image
+

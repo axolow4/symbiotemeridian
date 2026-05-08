@@ -1,0 +1,5 @@
+---
+aliases:
+  - Schism
+---
+Like representations of [[Demons]], [[Devils]], and all types underworld, Schisms are in fact inherently evil. Some Schisms have justifications, reasonings, lines of thought for why they kill, destroy, or degrade. Others do it out of sadistic joy. Some kill for no purpose at all. They are the savages of the [[Drive]] realm; they are opposed by [[Angels]], [[Devils]] and most who are aware of this realm. Like [[Angels]], they take servants without transforming the host's makeup, rather than intrinsically, slightly altering them. They strip the servants of the ability to tilt their conscience toward good without external intervention, though to even become a servant of a Schism, one must already have been subject to severe psychological issues, moral failings and general incompatibilities with society.

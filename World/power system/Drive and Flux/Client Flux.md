@@ -1,0 +1,1 @@
+[[Flux]] brought out of loyalty to a [[Drive consciousnesses|Drive consciousness]], sort of like a contract. The client uses the [[Flux]] from the server like Yuta and Rika.

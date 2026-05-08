@@ -1,0 +1,1 @@
+[[Kichiku]] that have been genetically engineered, formed through perfect [[Divergent life forms]], or converted through violent, painful ritual means to become based off of silicon. Similarly to other silicon beings, a silicon [[Kichiku]] will demonstrate a stronger inclination to [[Drive]].

@@ -1,0 +1,1 @@
+As the Pact of the [[Angels]], Divine Intervention is the heavenly ordained version of a [[Devils]]'s Pact. It 

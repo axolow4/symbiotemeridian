@@ -1,0 +1,1 @@
+The very first, fundamental portion of the power system. A universal energy "field", though not quantum due to its ability to be completely still and stagnant. Technically "quantum" in the sense it is an energy that can be quantized.
