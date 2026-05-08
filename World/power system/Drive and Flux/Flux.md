@@ -1,0 +1,1 @@
+[[Drive]] that is forced into movement, pulling it out of reserves and into a vector motion, used for funnelling through [[Talents]] and their respective [[Flairs]]. 
